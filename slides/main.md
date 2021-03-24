@@ -3,8 +3,12 @@
 
 
 ## NATO
+
+
+## NATO
 ### Allgemein
 - North Atlantic Treaty Organization
+- Politisch-militärischer Bündnis
 
 
-## Subslide
+## NATO-Doppelbeschluss
